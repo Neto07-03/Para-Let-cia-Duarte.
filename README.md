@@ -1,1 +1,0 @@
-# Para-Let-cia-Duarte.
